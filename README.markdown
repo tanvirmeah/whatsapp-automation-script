@@ -41,7 +41,7 @@ Supercharge your customer outreach by sending **bulk WhatsApp messages**—compl
 
 Ready to turn your spreadsheet into a **WhatsApp marketing powerhouse**? Let automation do the heavy lifting while you grow your business! 🚀
 
-📩 **Contact me on Telegram to purchase the script**: t.me/GitCodeStore
+📩 **Contact me on Telegram to purchase the script**: https://t.me/GitCodeStore
 
 ---
 
