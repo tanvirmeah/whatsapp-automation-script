@@ -43,6 +43,8 @@ Ready to turn your spreadsheet into a **WhatsApp marketing powerhouse**? Let aut
 
 📩 **Contact me on Telegram to purchase the script**: https://t.me/GitCodeStore
 
+Visit: https://gitcode.store
+
 ---
 
 **Note**: This script is designed for legitimate business use. Always comply with WhatsApp’s terms of service and local regulations when sending messages.
